@@ -13,7 +13,6 @@
 - 🌍 Based in **Rayong, Thailand**  
 - 📫 Reach me at: **boonyen.winai@gmail.com**  
 - 📝 I write on: [Medium](https://medium.com/@winai.boony)  
-- 📄 View my resume: [Click here](https://www.canva.com/design/DAGlOxKYsMY/wJV5Yx5XVOTDUiwtJoobFg/edit?utm_content=DAGlOxKYsMY&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 ---
 
